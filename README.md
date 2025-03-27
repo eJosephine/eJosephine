@@ -30,7 +30,7 @@
 
 
 📫 Let’s Connect!
-💻 GitHub:  https://github.com/eJosephine/eJosephine/new/main?
+💻 GitHub:  https://github.com/eJosephine
 📩 Email: josephine.ehinata@gmail.com
 🔗 LinkedIn: https://www.linkedin.com/in/josephine-suara-6658952aa/
 
